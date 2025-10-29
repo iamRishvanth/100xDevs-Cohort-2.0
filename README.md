@@ -8,5 +8,3 @@ I am also documenting my journey in other social media platforms as well.
 
 [LinkedIn](https://linkedin.com/in/iamRishvanth)
 [Twitter](https://twitter.com/iamRishvanth)
-[Instagram](https://instagram.com/iamRishvanth)
-[YouTube](https://youtube.com/@iamRishvanth)
